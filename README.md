@@ -1,4 +1,4 @@
-# NFT News
+# NFT News, Web3, Crypto Art, Features, Video
 [NFT News](https://landindex.io/news "NFT News") - latest nft article and news
 
 ## [NFT News](https://landindex.io/news "NFT News") The Future of Art
